@@ -1,2 +1,2 @@
 # david_vrp
-dav1d.exe#6666 if you have problems DM.
+dav1d.exe#5406 if you have problems DM on discord.
